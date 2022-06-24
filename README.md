@@ -1,6 +1,6 @@
-几百个论坛网站免费拿！
+几百个论坛地址永久免费，实时更新！
 
-地址1️⃣：https://share.mypitaya.com/fileshare/brq-GDrFbvonk1GH7niWD_p3hVjDFh7t0Q2yUWfkCI3h3kSle4xkvlRwljELXSv3
+地址1️⃣：https://p-1tf8.tower.im/p/iy7n
 
 地址2️⃣：https://github.com/233202/YZ.git
 
